@@ -1,0 +1,2 @@
+# AdGuard
+AdGuard优惠码和2024年最新AdGuard特价活动整理
